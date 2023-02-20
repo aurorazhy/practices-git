@@ -1,6 +1,6 @@
 # pengalaman-Belajarbaru
 
-Repository Ini Berisi Pengalaman Belajar di Dicoding tapi boong
+nyoba lagi :')
 --
 
 **14 Juni 2021**  
